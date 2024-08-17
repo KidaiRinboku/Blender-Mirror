@@ -1,1 +1,1 @@
-© 2007　KidariRinboku
+© 2007　KidaiRinboku
